@@ -67,5 +67,5 @@ Auto-compounding, stratégies multi-position, distribution de frais : les possib
 
 ---
 
-**Contact** : @Thedy | [LinkedIn](https://www.linkedin.com/in/theodore-dorvi/) | thedy.eth
+**Contact** : TG:@Thedy09 | [LinkedIn](https://www.linkedin.com/in/thedy09/) 
 
